@@ -1,0 +1,1 @@
+# boku-wa-daijoubu-janakatta
